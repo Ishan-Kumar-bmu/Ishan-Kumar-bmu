@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **ishankumar2407@gmail.com** For Collaboration/Project or A
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** ishankumar2407@gmail.com
 - ⚡ **Fun fact:** The original name of Amazon was “Cadabra,” but it was changed because people kept mishearing it as “cadaver”!
-- 
+  
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ishan_024_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Ishan-Kumar-bmu) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:ishankumar2407@gmail.com) 
 
